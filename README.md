@@ -1,1 +1,1 @@
-# Business Analyst / System Analis
+# Business Analyst / System Analyst
